@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Nebojsa
-- 👀 I’m interested in a bunch of stuff, espcially sports.
+- 👀 I’m interested in a bunch of stuff, especially sports.
 - 🌱 I’m currently learning the basics of IT
 - 💞️ I’m looking to collaborate on ...
 - 📫 You can reach me by email Nebojsa1994@hotmail.co.uk
